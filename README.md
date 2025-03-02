@@ -1,0 +1,2 @@
+# kosakatabab2
+LCN HSK2 KOSAKATA BAB 2
